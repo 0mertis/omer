@@ -1,0 +1,2 @@
+# omer
+Mavi tik
